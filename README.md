@@ -10,7 +10,7 @@ __!! this github was made for pony.town !!__
 
 ### Fandom skins I'm mostly seen in
 
-Undertale + AUs , Inscryption , Rain World , 
+Undertale + AUs , Inscryption , Rain World
 <br>
 Music artists/albums/characters
 <br>
