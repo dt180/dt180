@@ -4,26 +4,25 @@ __!! this github was made for pony.town !!__
 
 **no dni, interact freely**
 
-*Whisper to get my attention, I'm often afk*
-
-
+***Please whisper to get my attention***
+<br>
+*I'm often off-tab or completely afk*
 
 ### Fandom skins I'm mostly seen in
-
-Undertale + AUs , Inscryption , Rain World
+Rain World
+<br>
+Undertale + AUs , Inscryption , SSTWL
 <br>
 Music artists/albums/characters
-<br>
-Liam Vicker's work ( SSTWL, Murder Drones, etc. )
 
 ### pony.town stats
 
 Account created 3rd October, 2020
 <br>   ( /accountdate is 22nd March 2021, combined due to alting )<br>
-Total playtime: 915+ hours<br>
-0 users on blocklist<br>
+Total playtime: 1000+ hours<br>
+0 Perma-blocked users<br>
 🍀 1,000 <br>
-⚪ 102 <br>
+⚪ 110+ <br>
 🥚 550 <br>
 🍬 600 <br>
 
