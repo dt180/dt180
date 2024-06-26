@@ -19,10 +19,10 @@ Music artists/albums/characters
 
 Account created 3rd October, 2020
 <br>   ( /accountdate is 22nd March 2021, combined due to alting )<br>
-Total playtime: 1000+ hours<br>
+Total playtime: 1,000+ hours<br>
 0 Perma-blocked users<br>
 🍀 1,000 <br>
-⚪ 110+ <br>
+⚪ 111+ <br>
 🥚 550 <br>
 🍬 600 <br>
 
